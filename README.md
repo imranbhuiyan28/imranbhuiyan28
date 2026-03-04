@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://imranbhuiyanportfolio.framer.website/](https://imranbhuiyanportfolio.framer.website/)
 
-- 📫 How to reach me **ibhuiyan15@gmail.com**
+- 📫 How to reach me **ibhuiyann9815@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/11RPQL3tRXLanHtu8bv_-Qu-MoJI0goSo/view](https://drive.google.com/file/d/11RPQL3tRXLanHtu8bv_-Qu-MoJI0goSo/view)
 
